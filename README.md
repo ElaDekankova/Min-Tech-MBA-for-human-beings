@@ -1,0 +1,1 @@
+# Min-Tech-MBA-for-human-beings
